@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Frutschli
 - 👀 I’m interested in your mom
-- 🌱 I’m currently learning to fuck her
+- 🌱 I’m currently learning to know her
 - 💞️ I’m looking to collaborate on your mom 
 - 📫 How to reach me: just ask her
 - 😄 Pronouns: the/ best
